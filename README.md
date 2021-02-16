@@ -1,1 +1,0 @@
-# sandryar.github.io
